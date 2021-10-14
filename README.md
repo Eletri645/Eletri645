@@ -1,0 +1,2 @@
+- I'm learning programming ig
+- I don't suck too much
